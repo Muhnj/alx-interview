@@ -1,0 +1,1 @@
+Minimum Operations are those activities necessary for the business or operation to maintain the condition of facilities, premises and equipment, value of business inventory, payroll, employee benefits, security, and to facilitate employees of the business or operation to continue to work remotely from their residences.
